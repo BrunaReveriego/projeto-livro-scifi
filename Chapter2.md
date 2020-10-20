@@ -1,0 +1,1 @@
+O Universo, como já foi dito anteriormente, é um lugar desconcertantemente grande, um fato que, para continuar levando uma vida tranquila, a maioria das pessoas tende a ignorar.
